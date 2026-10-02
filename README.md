@@ -84,7 +84,7 @@ REVA University
 
 **Diploma – Mechanical Engineering**
 
-CGPA: **8.5**  
+CGPA: **7.25**  
 Completed: 2024
 
 ---
